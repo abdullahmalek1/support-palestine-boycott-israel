@@ -1,1 +1,1 @@
-# boycott-israel
+# Support Palestine. Boycott Israel
